@@ -97,4 +97,4 @@ Full written report (methodology and results in academic format) available
 on request.
 
 ---
-*Benjamin Gibson — [LinkedIn](#) — [email](#)*
+*Benjamin Gibson — [LinkedIn](https://www.linkedin.com/in/benjamin-gibson-ba8503336/)) — [email](bgib6886@gmail.com)*
